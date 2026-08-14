@@ -28,8 +28,6 @@
 ⊹ ࣪ ˖ 　﹒ ⠀dislike : waking up early, having to sleep, bugs
 
 
-#txt #txt #txt
-
 </td>
 
 </tr>
