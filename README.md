@@ -59,7 +59,7 @@ I dont usually int first if we're not friends but I may sometimes!
 
 ˚ ୨୧ . . Pls try to use tone tags w me (not all the time, mostly when i'm firstly meeting you), I sometimes don’t understand social cues so pls bare w me. My disc is tsukasitaeddsito, although pls ask b4 doing so! I may not talk 2 u much until I’m used 2 u.
 
-I don't always stay in one fandom area, so if im gone and online I'm usually in diff area's of fandoms i'm in, btw if u ever friend me plz do not friend me js to unfriend me later, bc why befriend some1 if you're gonna throw them away right after.
+I don't always stay in one fandom area, so if im gone and online I'm usually in diff area's of fandoms i'm in, btw if u ever ask to friend me plz do not friend me js to unfriend me later, bc why befriend some1 if you're gonna throw them away right after.
 
 ┈┈┈ ୨୧ ┈┈┈
 
