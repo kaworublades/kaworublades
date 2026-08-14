@@ -9,6 +9,8 @@
 
 </td>
 
+</a>
+
 <br><br>
 
 <h2>about me</h2>
