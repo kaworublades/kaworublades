@@ -18,11 +18,17 @@
 
 <br><br>
 
-<h2>about me</h2>
+<h2>about me!!</h2>
 
-♡ currently online  
-♡ listening to music  
-♡ probably bored
+⠀:¨ ·.· ¨:⠀@kaworublades
+⠀  `· .  flan ﹒ minor
+⠀⠀✚ ₊⠀she ⠀　﹒ 　⠀they　✧˖°.
+　　౨౿　birthday: 11 . 03　﹒ 　︵︵
+           ﹒ like : music, my bf, staying up late
+⊹ ࣪ ˖ 　﹒ ⠀dislike : waking up early, having to sleep, bugs
+
+
+#txt #txt #txt
 
 </td>
 
