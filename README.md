@@ -34,6 +34,9 @@
 
 
 </td>
+<img width="250" height="60" alt="tumblr_f1bd841865f30e4a22567857559ea612_8ef500fc_500" src="https://github.com/user-attachments/assets/88b6b872-bd7b-4eda-a29f-390bb241a276" />
+<img width="250" height="60" alt="tumblr_bae0225808419581842f11d5bd1a96d3_7be9bad6_400" src="https://github.com/user-attachments/assets/04f47a04-1702-49fd-90ee-d5ffae97ec5c" />
+<img width="250" height="60" alt="tumblr_c4acec81aa26d581796a7250ef50f137_06e29b86_250" src="https://github.com/user-attachments/assets/ac516cd9-0b88-4ce9-9ab5-4a4edf96eecf" />
 
 </table>
 
@@ -59,9 +62,6 @@ If u want to know more abt me there’s links on here !
 
 </tr>
 </table>
-<img width="250" height="60" alt="tumblr_f1bd841865f30e4a22567857559ea612_8ef500fc_500" src="https://github.com/user-attachments/assets/88b6b872-bd7b-4eda-a29f-390bb241a276" />
-<img width="250" height="60" alt="tumblr_9d8e001edfe788a857f2954428180bf7_e774d795_640" src="https://github.com/user-attachments/assets/9193ac7f-293f-46b3-ada7-2f393e81f617" />
-<img width="250" height="60" alt="tumblr_bae0225808419581842f11d5bd1a96d3_7be9bad6_400" src="https://github.com/user-attachments/assets/04f47a04-1702-49fd-90ee-d5ffae97ec5c" />
-<img width="250" height="60" alt="tumblr_c4acec81aa26d581796a7250ef50f137_06e29b86_250" src="https://github.com/user-attachments/assets/ac516cd9-0b88-4ce9-9ab5-4a4edf96eecf" />
+
 
 
