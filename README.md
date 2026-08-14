@@ -9,7 +9,7 @@
 
 </td>
 
-<td width="100" valign="top">
+<td width="50%" valign="top">
 
 <a href="https://github.com/kittinan/spotify-github-profile">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rn1ekqfpb033lqcs7nghty18j&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=53b14f&bar_color_cover=false">
