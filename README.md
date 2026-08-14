@@ -81,7 +81,7 @@ If u want to know more abt me there’s links on here !
 <img width="450" height="293" alt="Screenshot 2026-05-26 at 8 34 42 p m" src="https://github.com/user-attachments/assets/f387a37c-1f7e-41ab-9aa9-2964a1ca9170" />
 
 <img width="187" height="221" alt="Screenshot 2026-08-01 at 3 00 12 p m" src="https://github.com/user-attachments/assets/c88fed03-7114-463e-9719-c686da778efe" />
-<img width="530" height="310" alt="Screenshot 2026-05-31 at 8 10 55 p m" src="https://github.com/user-attachments/assets/afe5f136-7e96-4929-8da8-3c274ef14b6e" />
+<img width="450" height="293" alt="Screenshot 2026-05-31 at 8 10 55 p m" src="https://github.com/user-attachments/assets/afe5f136-7e96-4929-8da8-3c274ef14b6e" />
 
 
 <h2>okay ralsei</h2>
