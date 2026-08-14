@@ -72,5 +72,6 @@ If u want to know more abt me there’s links on here !
 </tr>
 </table>
 
-
+<img width="467" height="400" alt="Screenshot 2026-08-05 at 9 54 30 p m" src="https://github.com/user-attachments/assets/74eb3c3a-d5b4-4cfb-9434-6a255f4ffbc2" />
+friends
 
