@@ -1,5 +1,8 @@
 <img width="1200" height="200" alt="295 sin título_20260814020108" src="https://github.com/user-attachments/assets/15b11e8a-5fe0-4549-bccb-9b05b4a2fe69" />
 
+<h2>jargon!!</h2>
+
+
 <table>
 
 <td width="55%" valign="top"> <img width="430" height="500" alt="296 sin título_20260814021945" 
