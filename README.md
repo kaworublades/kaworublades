@@ -5,6 +5,7 @@
 <tr> 
   <td width="55%" valign="top"> 
     <img width="430" height="500" alt="296 sin título_20260814021945" 
+       <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rn1ekqfpb033lqcs7nghty18j&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=53b14f&bar_color_cover=false">
       src="https://github.com/user-attachments/assets/7bf83a29-2734-4141-8d12-908c991a460f" /> </td> <td width="100%" valign="top"> <a href="https://github.com/kittinan/spotify-github-profile"> 
        
 </a>        
