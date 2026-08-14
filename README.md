@@ -34,7 +34,6 @@
 
 
 </td>
-<img width="500" height="108" alt="tumblr_f1bd841865f30e4a22567857559ea612_8ef500fc_500" src="https://github.com/user-attachments/assets/88b6b872-bd7b-4eda-a29f-390bb241a276" />
 
 </table>
 
@@ -60,3 +59,4 @@ If u want to know more abt me there’s links on here !
 
 </tr>
 </table>
+<img width="100" height="50" alt="tumblr_f1bd841865f30e4a22567857559ea612_8ef500fc_500" src="https://github.com/user-attachments/assets/88b6b872-bd7b-4eda-a29f-390bb241a276" />
