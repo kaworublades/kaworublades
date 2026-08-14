@@ -14,7 +14,7 @@
 <br><br>
 ⠀  `· .  flan ﹒ minor
 <br><br>
-⠀⠀✚ ₊⠀she ⠀　﹒ 　⠀they　✧˖°.
+⠀⠀✚ ₊⠀she ⠀　﹒ 　⠀him ⠀　﹒ 　⠀they　✧˖°.
 <br><br>
 　　౨౿　birthday: 11 . 03　﹒ 　︵
   <br><br>
