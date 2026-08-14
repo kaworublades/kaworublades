@@ -79,3 +79,4 @@ If u want to know more abt me there’s links on here !
 <img width="450" height="293" alt="Screenshot 2026-07-16 at 3 30 56 p m" src="https://github.com/user-attachments/assets/5c729feb-3b9f-4487-9c83-e3c3e51f31ab" />
 <img width="450" height="293" alt="Screenshot 2026-07-20 at 6 05 00 p m" src="https://github.com/user-attachments/assets/31f0471c-d8ce-4aae-aeba-85269d44393a" />
 
+</table>
