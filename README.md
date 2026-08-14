@@ -74,8 +74,9 @@ If u want to know more abt me there’s links on here !
 
 <h2>random ss with my bf</h2>
 
-<img width="1470" height="956" alt="Screenshot 2026-07-16 at 4 17 14 p m" src="https://github.com/user-attachments/assets/ca2acc93-0b0e-4732-a824-9aa7e3c75422" />
-<img width="1470" height="956" alt="Screenshot 2026-07-19 at 5 41 02 p m" src="https://github.com/user-attachments/assets/faaea9c6-d389-45b6-9e2b-b9dc574b868a" />
-<img width="1470" height="956" alt="Screenshot 2026-07-16 at 3 32 41 p m" src="https://github.com/user-attachments/assets/da6f2272-8ec7-4d3d-8a99-475a6f40e81d" />
+<img width="735" height="478" alt="Screenshot 2026-07-16 at 4 17 14 p m" src="https://github.com/user-attachments/assets/ca2acc93-0b0e-4732-a824-9aa7e3c75422" />
 
+<img width="735" height="478" alt="Screenshot 2026-07-19 at 5 41 02 p m" src="https://github.com/user-attachments/assets/faaea9c6-d389-45b6-9e2b-b9dc574b868a" />
+
+<img width="735" height="478" alt="Screenshot 2026-07-16 at 3 32 41 p m" src="https://github.com/user-attachments/assets/da6f2272-8ec7-4d3d-8a99-475a6f40e81d" />
 
