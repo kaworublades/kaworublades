@@ -3,8 +3,8 @@
 <table>
 <tr>
 
-<td width="55%" valign="top">
-
+<td width="45%" valign="top" align="center">
+  
 <img width="430" height="500" alt="296 sin título_20260814021945" src="https://github.com/user-attachments/assets/7bf83a29-2734-4141-8d12-908c991a460f" />
 
 
