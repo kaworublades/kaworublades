@@ -21,10 +21,15 @@
 <h2>about me!!</h2>
 
 ⠀:¨ ·.· ¨:⠀@kaworublades
+<br><br>
 ⠀  `· .  flan ﹒ minor
+<br><br>
 ⠀⠀✚ ₊⠀she ⠀　﹒ 　⠀they　✧˖°.
-　　౨౿　birthday: 11 . 03　﹒ 　︵︵
+<br><br>
+　　౨౿　birthday: 11 . 03　﹒ 　︵
+  <br><br>
            ﹒ like : music, my bf, staying up late
+           <br><br>
 ⊹ ࣪ ˖ 　﹒ ⠀dislike : waking up early, having to sleep, bugs
 
 
