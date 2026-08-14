@@ -36,7 +36,7 @@
 <table>
 <h2>get to know me better!</h2>
 
-<br><br>
+<br>
 
 
 ⋆ ˚｡ ,, DO NOT cuddle, hug or kiss if it isn't on my name or profile. w2i encouraged tho! keep in mind I may be with my bf most of the time — other than that if I don’t speak much it’s usually bc I’m super shy and nervous + I’m kinda socially anxious. If i poof its normally because of wifi, i fell asleep or bc i was offtab too long im basically almost online all the time.
