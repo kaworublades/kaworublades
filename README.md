@@ -3,33 +3,4 @@
 <img align="right"> 
 <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rn1ekqfpb033lqcs7nghty18j&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
-<table>
-  <tr>
-    <td width="55%" align="center">
-      <img src="./assets/main.png" width="500">
-    </td>
 
-    <td width="45%" align="center">
-
-      <h3>✦ hey!! >
-
-      <p>
-        welcome to my profile ♡
-        <br>
-        she/they · prob bored 
-      </p>
-
-      <img src="./assets/stamp1.png" width="80">
-      <img src="./assets/stamp2.png" width="80">
-
-      <br><br>
-
-      <a href="https://github.com/kaworublades">
-        ✦ GitHub
-      </a>
-
-    </td>
-  </tr>
-</table>
