@@ -16,8 +16,6 @@
 
 </a>
 
-<br><br>
-
 <h2>about me!!</h2>
 
 ⠀:¨ ·.· ¨:⠀@kaworublades
@@ -32,7 +30,7 @@
            <br><br>
 ⊹ ࣪ ˖ 　﹒ ⠀dislike : waking up early, having to sleep, bugs
 
-
+<br><br>
 <tr>
 <td colspan="2" align="center">
 
