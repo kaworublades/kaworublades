@@ -2,7 +2,9 @@
 
 <table>
 
-
+<td width="55%" valign="top"> <img width="430" height="500" alt="296 sin título_20260814021945" 
+                               
+                                 
 <h2>.𖥔 ݁ ˖╭ ┆about me ╰⊹ ࣪</h2>
 
 ⠀:¨ ·.· ¨:⠀@kaworublades
