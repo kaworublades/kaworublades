@@ -35,6 +35,8 @@
 
 </td>
 
+</table>
+
 ⋆ ˚｡ ,, DO NOT cuddle, hug or kiss if it isn't on my name or profile. w2i encouraged tho! keep in mind I may be with my bf most of the time — other than that if I don’t speak much it’s usually bc I’m super shy and nervous + I’m kinda socially anxious. If i poof its normally because of wifi, i fell asleep or bc i was offtab too long im basically almost online all the time.
 
 Any ships int as long as its not really toxic (and I dont mean doomed), weird, pedo, incest etc yknow the basics also ocxcanon may int !! i love ocxcanon and would love to know abt ur oc(s), Yumeships are also welcome!!
