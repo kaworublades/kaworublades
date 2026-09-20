@@ -15,7 +15,7 @@
 
 ⠀:¨ ·.· ¨:⠀@kaworublades
 <br><br>
-⠀  `· .  flan ﹒ minor
+⠀  `· .  sol ﹒ minor
 <br><br>
 ⠀⠀✚ ₊⠀she ⠀　﹒ 　⠀him ⠀　﹒ 　⠀they　✧˖°.
 <br><br>
